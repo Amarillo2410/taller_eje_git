@@ -32,3 +32,18 @@
 🔄 Estira todos los grupos musculares principales, no solo los que más usas.
 
 📆 Practica de forma regular, al menos 3 veces por semana.
+
+## *consejos*
+* 🚫 Evita los movimientos bruscos que puedan causar microlesiones.
+
+* 🧠 Escucha a tu cuerpo: debe sentirse tensión, no dolor.
+
+* 🎯 Concéntrate en la técnica, no en competir con la amplitud de otras personas.
+
+* 🥶 No estires en frío: hazlo tras un breve calentamiento o entrenamiento.
+
+* 🧍‍♂️ Mantén la espalda recta en los estiramientos para evitar sobrecargas.
+
+* 🌙 Incluye sesiones de estiramiento antes de dormir para mejorar el descanso.
+
+* 🐾 Sé constante: los beneficios aparecen con la práctica continua.
