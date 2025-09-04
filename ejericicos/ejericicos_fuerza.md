@@ -17,3 +17,18 @@
 * 🧘 Corrigen la postura y el equilibrio, reduciendo dolores de espalda.
 
 * 😊 Aumentan la confianza y reducen el estrés, gracias a la liberación de endorfinas.
+
+## *instrucciones*
+* Consulta con un profesional de la salud si tienes alguna condición médica antes de comenzar.
+
+* 🎯 Define tus objetivos (ganar masa muscular, tonificar, mejorar fuerza funcional).
+
+* ⏱️ Calienta entre 5 y 10 minutos con movilidad articular o cardio ligero.
+
+* 🏋️ Empieza con cargas ligeras o peso corporal, y aumenta progresivamente la intensidad.
+
+* 🔄 Realiza 2–3 series de 8–12 repeticiones según tu nivel de experiencia.
+
+* ⌛ Descansa entre series (30–90 segundos dependiendo del ejercicio).
+
+* 🧘 Finaliza con estiramientos para evitar rigidez y mejorar la recuperación.
