@@ -17,3 +17,18 @@
 * ⚖️ Mejoran el equilibrio y la coordinación, fundamentales en cualquier disciplina.
 
 * 🧑 Aportan movilidad en todas las etapas de la vida, especialmente en adultos mayores.
+
+## *instrucciones*
+* ⏱️ Dedica de 5 a 15 minutos a la práctica, preferiblemente después del calentamiento o del entrenamiento.
+
+🧍 Adopta una postura estable antes de cada estiramiento.
+
+⏳ Mantén cada posición de 15 a 30 segundos sin rebotes.
+
+🐢 Avanza de manera suave y progresiva, nunca fuerces más allá de lo cómodo.
+
+💧 Respira profundamente durante los estiramientos para ayudar a relajar los músculos.
+
+🔄 Estira todos los grupos musculares principales, no solo los que más usas.
+
+📆 Practica de forma regular, al menos 3 veces por semana.
