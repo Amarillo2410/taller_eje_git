@@ -19,5 +19,17 @@
 
 * 🔥 Quema calorías de forma efectiva, combinando fuerza y cardio.
 
+## *instrucciones*
+* ⏱️ Dedica entre 30 y 45 minutos por sesión, según tu nivel.
 
+* 🐢 Comienza con movimientos básicos, como sentadillas, planchas o estocadas.
 
+* 🏋️ Usa poco o ningún peso al inicio, luego incorpora implementos gradualmente.
+
+* 🔄 Combina 5 a 8 ejercicios en circuito, trabajando diferentes grupos musculares.
+
+* ⌛ Haz intervalos cortos de descanso (30–60 segundos) entre ejercicios.
+
+* 🎯 Mantén la técnica correcta, priorizando calidad sobre cantidad.
+
+* 🧘 Finaliza con estiramientos para favorecer la recuperación.
