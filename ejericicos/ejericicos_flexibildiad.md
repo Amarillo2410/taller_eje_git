@@ -1,2 +1,4 @@
 # *ejercicios de flexibilidad*
 
+## *descripcion*
+* Los ejercicios de flexibilidad son actividades físicas que buscan aumentar el rango de movimiento de las articulaciones y la elasticidad de los músculos. Estos entrenamientos ayudan a mejorar la postura, la movilidad y la coordinación, además de reducir la tensión muscular acumulada por la inactividad o el esfuerzo físico. Practicarlos con regularidad favorece la prevención de lesiones, la recuperación después de otros entrenamientos y el bienestar general del cuerpo, ya que aportan una mayor sensación de ligereza y libertad en los movimientos diarios.
