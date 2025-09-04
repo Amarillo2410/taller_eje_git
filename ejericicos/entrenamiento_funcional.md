@@ -33,3 +33,18 @@
 * 🎯 Mantén la técnica correcta, priorizando calidad sobre cantidad.
 
 * 🧘 Finaliza con estiramientos para favorecer la recuperación.
+
+## *consejos*
+* 🧍 Trabaja el core (zona abdominal y lumbar), base de la estabilidad del cuerpo.
+
+* 📅 Sé constante, lo ideal es entrenar 3 a 4 veces por semana.
+
+* 🧠 Enfócate en la técnica, evita movimientos descuidados o muy rápidos.
+
+* 🥗 Acompaña el entrenamiento con buena nutrición, para maximizar los resultados.
+
+* 🤝 Usa implementos de forma segura, evitando cargas que no puedas controlar.
+
+* 🚫 No descuides los descansos, el sobreentrenamiento puede causar lesiones.
+
+* 🎶 Hazlo dinámico y divertido, la variedad mantiene la motivación alta.
