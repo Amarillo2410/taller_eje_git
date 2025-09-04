@@ -32,3 +32,18 @@
 * ⌛ Descansa entre series (30–90 segundos dependiendo del ejercicio).
 
 * 🧘 Finaliza con estiramientos para evitar rigidez y mejorar la recuperación.
+
+## *consejos*
+* 📝 Planifica tu rutina: organiza los días y los grupos musculares que trabajarás.
+
+* 🔁 Varía los ejercicios: cambia la rutina cada cierto tiempo para evitar estancamientos.
+
+* 💨 Respira correctamente: exhala al levantar el peso e inhala al bajarlo.
+
+* 🧴 Hidrátate durante el entrenamiento, incluso si no sientes tanta sudoración como en el cardio.
+
+* 🧠 Concéntrate en la contracción muscular (mind-muscle connection) para mayor efectividad.
+
+* ⏳ Controla la velocidad: evita movimientos bruscos, realiza cada repetición con control.
+
+* 🛑 Detente si sientes dolor agudo: diferencia entre esfuerzo normal y dolor de lesión.
