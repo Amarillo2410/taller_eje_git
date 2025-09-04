@@ -34,3 +34,17 @@
 
 * 🧘 Finaliza con estiramientos y respiración profunda para relajar los músculos.
 
+## *consejos*
+* 🐢 Avanza de forma progresiva: no intentes hacer demasiado desde el inicio.
+
+* 👟 Usa calzado adecuado para evitar lesiones en pies y rodillas.
+
+* 🥗 Combina el cardio con una alimentación equilibrada para mejores resultados.
+
+* 💤 Descansa lo suficiente entre sesiones intensas para permitir la recuperación.
+
+* 🎶 Motívate con música o compañía, así la rutina será más divertida.
+
+* 🚫 Evita el sobreentrenamiento, escucha a tu cuerpo y detente si sientes dolor.
+
+* 🌡️ Adapta el ejercicio al clima, evitando entrenar bajo temperaturas extremas.
