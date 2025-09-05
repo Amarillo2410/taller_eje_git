@@ -17,3 +17,18 @@
 * ⚡ Aumenta la resistencia y la energía diaria.
 
 * 🧘 Mejora la coordinación y el equilibrio corporal 
+
+## *Instrucciones*
+* 🏊 Escoge un estilo de nado acorde a tu nivel (crol para principiantes).
+
+* 📅 Empieza con sesiones cortas, de 20 a 30 minutos.
+
+* 🫁 Coordina la respiración con las brazadas, inhalando por la boca fuera del agua y exhalando dentro.
+
+* 🐢 Nada a un ritmo moderado al inicio, luego incrementa intensidad.
+
+* 🛟 Usa material de apoyo como tablas o pull buoy si estás aprendiendo.
+
+* 💧 Hidrátate antes y después, aunque estés en el agua.
+
+* 🧍 Haz estiramientos antes y después de cada sesión.
