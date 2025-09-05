@@ -32,4 +32,19 @@
 * ⏱️ Haz entrenamientos por rondas (ej. 3 min de trabajo x 1 min de descanso).
 
 * 🧘 Finaliza con estiramientos y respiración para recuperar el cuerpo.
+
+## *consejos*
+* 🛡️ Usa siempre protector bucal y guantes adecuados.
+
+* 🧍 No descuides la postura de guardia, es tu defensa principal.
+
+* 🐢 Aprende primero la técnica antes de aumentar la intensidad.
+
+* 🛑 No entrenes sin supervisión si eres principiante.
+
+* 💧 Mantente hidratado durante toda la sesión.
+
+* 🎯 Combina boxeo con ejercicios de fuerza y cardio para mejores resultados.
+
+* 🩺 Consulta a un médico si tienes problemas de corazón o lesiones previas.
   
