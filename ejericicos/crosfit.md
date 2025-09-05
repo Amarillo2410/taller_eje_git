@@ -17,3 +17,18 @@
 * 📈 Permite progresar con ejercicios escalables a cada nivel.
 
 * 🧠 Refuerza la disciplina, la constancia y la resiliencia mental.
+
+## *Instruccion*
+*  🏋️ Empieza con un calentamiento dinámico de movilidad y cardio ligero.
+
+* 📋 Sigue la rutina WOD del día, adaptándola a tu nivel.
+
+* ⏱️ Trabaja por intervalos de tiempo o repeticiones máximas.
+
+* 🧍 Mantén la técnica correcta antes de aumentar peso o velocidad.
+
+* 🔄 Combina ejercicios de fuerza (pesas), cardio (cuerda, remo) y funcionales (sentadillas, burpees).
+
+* 🛑 Descansa lo justo entre rondas, manteniendo alta la intensidad.
+
+* 🧘 Cierra con estiramientos y ejercicios de movilidad.
