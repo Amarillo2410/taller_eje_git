@@ -32,3 +32,18 @@
 * 💧 Hidrátate antes y después, aunque estés en el agua.
 
 * 🧍 Haz estiramientos antes y después de cada sesión.
+
+## *consejos*
+* 🛡️ Nada siempre en lugares seguros (piscinas controladas o zonas vigiladas).
+
+* 👓 Usa gafas de natación para proteger los ojos.
+
+* 🧢 Lleva gorro de natación, mejora la aerodinámica y protege el cabello.
+
+* 🛑 No entrenes solo en aguas abiertas, siempre con compañía o supervisión.
+
+* 🕒 No nades justo después de comer, espera al menos 1 hora.
+
+* 🎯 Fija metas alcanzables, como mejorar técnica o aumentar resistencia.
+
+* 🩺 Si tienes problemas respiratorios o cardíacos, consulta a un médico antes de entrenar.
