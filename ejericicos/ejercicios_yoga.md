@@ -17,3 +17,18 @@
 * 🌀 Corrige la postura, alineando la columna y reduciendo dolores.
 
 * 🌱 Promueve el autocontrol y la concentración, útiles en la vida diaria.
+
+## *instrucciones*
+* 🕒 Dedica de 20 a 60 minutos, según tu nivel y disponibilidad.
+
+* 📍 Elige un lugar tranquilo y cómodo, con suficiente espacio.
+
+* 🧘 Empieza con posturas básicas, como la montaña, el perro boca abajo o el niño.
+
+* 🫁 Acompaña cada movimiento con respiración consciente.
+
+* ⏳ Mantén cada postura entre 20 y 60 segundos, sin forzar.
+
+* 🔄 Avanza progresivamente hacia posturas más complejas, respetando tu cuerpo.
+
+* 🧘‍♂️ Cierra la sesión con relajación o meditación breve.
