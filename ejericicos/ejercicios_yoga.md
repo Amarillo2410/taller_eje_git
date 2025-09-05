@@ -32,3 +32,18 @@
 * 🔄 Avanza progresivamente hacia posturas más complejas, respetando tu cuerpo.
 
 * 🧘‍♂️ Cierra la sesión con relajación o meditación breve.
+
+## *consejos*
+* 🐢 No fuerces tu cuerpo, la flexibilidad llega con constancia.
+
+* 🪬 Hazlo con la mente presente, enfócate en tu respiración.
+
+* 🧍 Usa un mat antideslizante, evita lesiones por resbalones.
+
+* 💧 Mantente hidratado, especialmente en estilos intensos como Bikram.
+
+* 🛑 Evita compararte, cada cuerpo tiene su propio proceso.
+
+* 📅 Practica de forma regular, aunque sean 10 minutos diarios.
+
+* 🎶 Acompaña con música suave o silencio, lo que te ayude a conectar mejor.
