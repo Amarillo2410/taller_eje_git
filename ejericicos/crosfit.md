@@ -32,3 +32,18 @@
 * 🛑 Descansa lo justo entre rondas, manteniendo alta la intensidad.
 
 * 🧘 Cierra con estiramientos y ejercicios de movilidad.
+
+## *consejos*
+* 🐢 Progresar de forma gradual, no cargues más peso del que puedes manejar.
+
+* 🧍 Prioriza la técnica sobre la velocidad o la cantidad de repeticiones.
+
+* 🛡️ Usa calzado adecuado y cómodo, con buena estabilidad.
+
+* 🩺 Escucha a tu cuerpo y detente si sientes dolor.
+
+* 💧 Mantente hidratado durante toda la sesión.
+
+* 👥 Entrena acompañado o con supervisión de un coach certificado.
+
+* 📅 Sé constante y combina CrossFit con descanso suficiente.
