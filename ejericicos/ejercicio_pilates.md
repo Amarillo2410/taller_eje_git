@@ -35,3 +35,19 @@
 * 🛋️ Comienza con ejercicios básicos como "The Hundred" o "Rolling Like a Ball".
 
 * 📅 Practica entre 2 y 3 veces por semana para mejores resultados.
+
+## *consejos*
+
+* 🪑 Si eres principiante, inicia con clases guiadas o videos explicativos.
+
+* 🛑 Evita movimientos bruscos o forzados, el control es la clave.
+
+* 🧘 Mantén la respiración constante, no la retengas.
+
+* 💧 Hidrátate antes y después de la sesión.
+
+* 🩺 Consulta a un especialista si tienes problemas de espalda o lesiones previas.
+
+* ⏳ Dedica tiempo al calentamiento y estiramiento final.
+
+* 🎯 Concéntrate en la calidad, no en la cantidad de repeticiones.
