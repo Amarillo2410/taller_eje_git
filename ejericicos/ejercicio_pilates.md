@@ -17,3 +17,21 @@
 * 🏋️ Previene lesiones, al trabajar músculos estabilizadores.
 
 * 🧘 Promueve el equilibrio entre cuerpo y mente.
+
+## *instrucciones*
+
+* 📝 Instrucciones para practicar pilates
+
+* 📍 Utiliza una colchoneta en un espacio cómodo y libre de distracciones.
+
+* 🫁 Concéntrate en la respiración costal, inhalando por la nariz y exhalando por la boca.
+
+* 🐢 Haz los movimientos lentamente, priorizando la técnica sobre la velocidad.
+
+* 🔁 Empieza con series cortas, de 6 a 10 repeticiones por ejercicio.
+
+* 🧍 Mantén la alineación corporal, especialmente en columna y pelvis.
+
+* 🛋️ Comienza con ejercicios básicos como "The Hundred" o "Rolling Like a Ball".
+
+* 📅 Practica entre 2 y 3 veces por semana para mejores resultados.
