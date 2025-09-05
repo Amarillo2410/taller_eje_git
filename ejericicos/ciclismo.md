@@ -32,3 +32,19 @@
 * 💧 Hidrátate constantemente durante el recorrido.
 
 * 🛑 Respeta las normas de tránsito si pedaleas en carretera o ciudad.
+
+## *consejos*
+
+* 🔧 Revisa tu bicicleta antes de cada salida (frenos, llantas y cadena).
+
+* 🌞 Evita pedalear en horas de mucho sol, prefiere la mañana o la tarde.
+
+* 👕 Usa ropa cómoda y transpirable, de preferencia con reflectivos.
+
+* 🥗 Aliméntate bien antes de recorridos largos, con carbohidratos y frutas.
+
+* 🦺 Lleva herramientas básicas (parches, bomba de aire, multitool).
+
+* 🎯 Marca objetivos claros, como tiempo, distancia o velocidad.
+
+* 🚦 Sé visible siempre, usa luces delanteras y traseras si pedaleas de noche.
